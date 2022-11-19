@@ -1,1 +1,1 @@
-# Lab6
+# kassarapon chayanant sec:336B
